@@ -10,5 +10,5 @@
 ## Connect me via 
 1. [Facebook](https://www.facebook.com/lyk.vu.9/)
 2. [Email](mailto:linhvu263@gmail.com)
-
+![Thuy Linh](https://i.pinimg.com/564x/af/99/2c/af992cf4e2fa626a82412e8fb97728de.jpg)
 #### © 2020 by thuy.linh
