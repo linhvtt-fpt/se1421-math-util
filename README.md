@@ -8,7 +8,7 @@
 * README.md - this file itself to show the homepage of this repo
 
 ## Connect me via 
-[Facebook](https://www.facebook.com/lyk.vu.9/)
-[Email](mailto:linhvu263@gmail.com)
+1. [Facebook](https://www.facebook.com/lyk.vu.9/)
+2. [Email](mailto:linhvu263@gmail.com)
 
 #### © 2020 by thuy.linh
